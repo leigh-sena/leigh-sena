@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @leigh-sena
 - 👀 I’m interested in video game design, reading fantasy, and rock-climbing.
-- 🌱 I’m currently learning Unity
+- 🌱 I’m currently learning Python 
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me my email
 
