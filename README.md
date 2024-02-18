@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @leigh-sena
-- 👀 I’m interested in video game design, reading fantasy, rock-climbing, and self-hosting!
+- 👀 I’m interested in video game design, reading fantasy, DM-ing pf2e, rock-climbing, and self-hosting!
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me: lsena@ceresimaging.net or leigh.sena@gmail.com
 
